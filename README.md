@@ -1,1 +1,0 @@
-# Tri-u-m-nh-c-ng-
